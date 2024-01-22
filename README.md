@@ -1,0 +1,1 @@
+# majestiaziz.github.io
